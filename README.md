@@ -1,0 +1,2 @@
+# -
+freshman to AI
